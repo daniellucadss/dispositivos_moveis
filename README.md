@@ -1,1 +1,0 @@
-# dispositivos_moveis
